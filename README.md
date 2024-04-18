@@ -10,7 +10,7 @@
 
 - <a href="https://www.academia.edu/117687325" target="_blank">https://www.academia.edu/117687325</a>
 
-- <a href="" target="_blank"></a>
+- <a href="https://www.researchgate.net/publication/379905780" target="_blank">https://www.researchgate.net/publication/379905780</a>
 
 <br>
 
